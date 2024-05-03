@@ -11,5 +11,3 @@ Além disso, estou aberto a colaborações, projetos em grupo e pronto para abso
 Mal posso esperar para começar esta jornada de aprendizado e crescimento com todos vocês!
 
 Se precisar de mais alguma coisa, estou aqui para ajudar!
-
-teste testee
